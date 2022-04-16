@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Loadingcoolguy
+- 👀 I’m interested in QBCore Script for free 
+- 🌱 I’m currently learning how to script 
+- 💞️ I’m looking to collaborate with QBCore ScriptShop
+- 📫 How to reach me - Add me on Discord Loading...#0885
